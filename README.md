@@ -1,1 +1,0 @@
-# Blazr Information
